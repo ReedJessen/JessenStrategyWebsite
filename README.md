@@ -3,6 +3,6 @@
 
 ### Links
 - Founder and Principle: [Reed Jessen](https://www.linkedin.com/in/reedjessen/)
-- [LinkedIn](https://www.linkedin.com/company/jessen-strategy/))
+- [LinkedIn](https://www.linkedin.com/company/jessen-strategy/)
 
 Copyright 2025
